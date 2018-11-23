@@ -1,4 +1,4 @@
-##My friends
+## My friends
 
 - Becky
 - Kawira 
